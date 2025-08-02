@@ -1,1 +1,1 @@
-# 2420030302_oops_pratical
+# 2420030302_oops_skill
